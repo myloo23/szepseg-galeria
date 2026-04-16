@@ -1,2 +1,0 @@
-# szepseg-galeria
-
